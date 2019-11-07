@@ -1,6 +1,8 @@
+**Press Release - Untuk Jurnalis dan Blogger (Silahkan di share)**
+
 # Audience Serv: Paket Pemesanan Langsung Hotel (Direct Bookings) Sekarang Tersedia di Indonesia
 
-DENPASAR, Indonesia - November 1, 2019
+DENPASAR, Indonesia - November, 2019
 
 [Audience Serv APAC](https://www.audienceserv.asia/) dan [BiruDaun Web Studio](https://birudaun.net/) &amp; [Celax Digital Marketing](https://www.celax.asia/) telah menandatangani perjanjian kemitraan penjualan, layanan dukungan dan pengembangan  secara eksklusif untuk Indonesia dan sekarang dikenal sebagai [Audience Serv Indonesia](https://www.audienceserv.id/).
 
@@ -43,3 +45,8 @@ Oliver Wilke
 [oliver.wilke@audienceserv.com](mailto:oliver.wilke@audienceserv.com)
 
 WA &amp; HP +84 91950 2332
+
+
+Address:
+BiruDaun & Celax Digital, Denpasar
+Jl. Pulau Saelus II No. 1 X-B, Sesetan, Denpasar, Bali
