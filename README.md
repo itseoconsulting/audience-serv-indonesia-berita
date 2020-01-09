@@ -1,5 +1,46 @@
 **Press Release - Untuk Jurnalis dan Blogger (Silahkan di share)**
 
+## Audience Serv Indonesia Meningkatkan Potensi "Direct Bookings" Di Tahun 2020
+
+Denpasar, Bali, Indonesia – 6. Januari 2020
+
+Hotel Revenue and Distribution Summit yang ke-7 telah terlaksana dengan baik di Magani Hotel, Bali, pada Desember 2019 yang lalu. Saat ini kami mulai menyusun portfolio yang menggambarkan keberhasilan klien2 kami pada beberapa bulan terakhir ini.
+
+Kemitraan ekslusif antara Audience Serv APAC dan Celax, yang diperkenalkan sebagai Audience Serv Indonesia di bawah bendera BiruDaun, melahirkan cara baru dalam meningkatkan "direct booking" bagi hotel-hotel serta villa-villa di Indonesia.
+
+Di tahun 2020 ini kami memperluas usaha kami dengan portfolio layanan yang dinamis yang menitikberatkan pada kekuatan kami dalam pangsa pariwisata / perhotelah di Indonesia.
+
+Audience Serv Indonesia adalah portofolio layanan yang dioptimalkan untuk industri perhotelan di Bali dan Indonesia, dari hotel kecil hingga menengah, baik brand nasional ataupun global di lokasi kelas A dan B. Kami menangani penjualan, dukungan, serta pengembangan di wilayah Indonesia, sementara Audience Serv APAC menyokong kegiatan kami dari luar negeri. Audience Serv Indonesia dapat dihubungi di [https://audienceserv.id](https://audienceserv.id/)
+
+Portofolio layanan kami untuk desain & aplikasi web, kecepatan & analisa web tersedia untuk perusahaan menengah di [https://birudaun.net/](https://birudaun.net/), sementara kami melayani pasar menengah ke atas di [https://IndonesiaDigitalMarketing.id](https://indonesiadigitalmarketing.id/) portofolio.
+
+Perusahaan kami Celax meliputi portofolio, sebagai inkubator dan konsultan teknologi tinggi, dan salah satu penggerak dan sumber solusi pemesanan yang inovatif. Rincian lebih lanjut akan tersedia di [https://www.celax.asia/](https://www.celax.asia/)
+
+**Audience Serv Indonesia**  
+Contact  **English**  
+Pak Kriss  
+[hello@audienceserv.id](mailto:hello@audienceserv.id)  
+WA & HP 0878-6177-5168  
+
+Contact  **Bahasa**  
+Mas Yoseph  
+[halo@audienceserv.id](mailto:halo@audienceserv.id)  
+WA & HP 0812-4646-007  
+
+Mas Anang  
+[halo@audienceserv.id](mailto:halo@audienceserv.id)  
+WA & HP 0813-3860-6660  
+
+**Audience Serv APAC**  
+Oliver Wilke  
+VP Sales & Client Services  
+[oliver.wilke@audienceserv.com](mailto:oliver.wilke@audienceserv.com)  
+WA & HP +84 91950 2332  
+
+### Our Indonesian Hotel- & Villa-Operator Receive More Direct Bookings  
+<br/><br/><br/>
+**Press Release - Untuk Jurnalis dan Blogger (Silahkan di share)**
+
 # Audience Serv: Paket Pemesanan Langsung Hotel (Direct Bookings) Sekarang Tersedia di Indonesia
 
 DENPASAR, Indonesia - November, 2019
